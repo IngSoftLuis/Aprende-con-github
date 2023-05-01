@@ -2,4 +2,4 @@
 
 Aprende GitHub
 
-[Visita mi perfil en Instagram](https://www.instagram.com/luissupervip/)
+[Visita mi perfil en Instagram](https://instagram.com/luissupervip/)
